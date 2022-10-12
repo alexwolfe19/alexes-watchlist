@@ -1,0 +1,95 @@
+# Alex's Watchlist
+Below is my watchlist, well, my original one. I rewrote it [watchlist](over here), but am leaving this one up for ref.
+
+## Watchlist
+-   Komi Can’t Communicate    
+-   Legacies
+-   Sex Education
+-   Blacklist
+-   In The Dark
+-   Kid Cosmic
+-   Avatar the Last Airbender
+-   The Legend of Korra
+-   Love Death + Robots
+-   Merlin
+-   The Promised Neverland
+-   My Girl
+-   Total Drama Island
+-   Hilda
+-   The Magicians
+-   The Good Place
+-   Paddington
+-   A Silent Voice
+-   iZombie
+-   Creeped Out
+-   A Whisker Away
+-   Quantico
+-   The Book of Henry
+-   The Queen’s Gambit
+-   Orange is the new Black
+-   The Space Between Us
+-   Mr. Peabody and Sherman
+-   The Umbrella Academy
+-   My Babysitter’s A Vampire
+-   Black Mirror
+-   Bo Burnham Inside
+-   Chilling Adventures of Sabrina
+-   BNA
+-   Chappie
+-   Russian Doll
+-   I Am Mother
+-   6 Underground
+-   Mr. Right
+-   Happy
+-   I am not Okay With This
+-   Warrior Nun
+-   Travelers
+-   The OA
+-   Code 8
+-   The Old Guard
+-   What Happened to Monday
+-   Disenchantment
+-   The End of the Fucking World
+-   Batman: The Killing Joke
+-   Project Power
+-   Before I Wake
+-   Nobody’s Looking
+-   The Willoughbys
+-   No Good Nick
+-   Eli
+-   Locke & Key
+-   The Order
+-   Beastars
+-   Tall Girl
+-   Anon
+-   Lucifer
+-   Outside the Wire
+-   Raising Dion
+-   Lost in Space
+-   Omniscient
+-   Little Evil
+-   Medical Police
+-   The Way of the Househusband
+-   Kotaro Lives Alone
+-   BoJack Horseman
+-   Zach Stone is gonna be famous
+-   Atypical
+-   God’s Favorite Idiot
+-   Teasing Master Takagi-san
+-   Inception
+-   Sweet Tooth
+-   Five Feet Apart
+-   Level 16
+-   Regular Show
+-   Adventure Time
+-   Steven Universe
+-   Smiling Friends
+-   Harley Quinn
+-   Warm Bodies
+-   Euphoria
+-   We Bare Bears
+-   Teen Titans
+-   Over the Garden Wall
+-   The Marvelous Misadventures of Flapjack
+-   Foster’s Home for Imaginary Friends
+-   Earwig and the Witch
